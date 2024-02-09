@@ -1,55 +1,45 @@
-﻿## ¿CÓMO PREPARAR PIZZA ITALIANA CLÁSICA?
+﻿# 🍕
 
-TABLA DE CONTENIDOS
+[![pizzaitl.jpg](https://i.postimg.cc/N0GDwYZB/pizzaitl.jpg)](https://postimg.cc/TKSgV8R4)
 
-Aprende a preparar una clásica pizza italiana para que conviertas esta receta en una experiencia única. Es ideal para comerla con amigos, familia o solo.
+## Tabla de Contenidos
 
-Dificultad de la preparación
+- [Introducción](#introducción)
+- [Dificultad de la Preparación](#dificultad-de-la-preparación)
+- [Preparación](#preparación)
+
+## Introducción
+
+Aprende a preparar una clásica pizza italiana y convierte esta receta en una experiencia única. Ideal para compartir con amigos, familia o disfrutar solo.
+
+## Dificultad de la Preparación
 
 35%
 
-Cómo preparar pizza italiana
+## Cómo Preparar Pizza Italiana
 
-Compra tu aceite de oliva aquí
+### Ingredientes para la Pizza
 
-Ingredientes para la pizza
+- 350 gr de harina de trigo (y un poco más para amasar)
+- 180 ml de agua
+- 1 cucharadita de sal
+- ½ cucharadita de levadura seca
+- 1 ½ cucharaditas de aceite de oliva Olivetto® sabor intenso
+- 6 cucharadas de salsa pomodoro
+- 1 taza de mozzarella de búfala
+- 1 tomate chonto pequeño, cortado en tajadas
+- ½ taza de aceitunas cortadas por la mitad
+- 1 cucharada de hojas de albahaca fresca
+- Orégano, peperoncino y pimienta para servir
 
+### Preparación
 
-350 gr de harina de trigo (y un poco más para amasar)
+1. Mezcla la harina y la sal en un recipiente grande. Disuelve la levadura en el agua.
+2. Haz un hueco en el centro de la harina, vierte el agua y mezcla del centro hacia afuera, uniendo todos los ingredientes.
+3. Agrega el aceite y amasa durante 10 minutos o hasta que la masa quede lisa y elástica. Deja reposar durante una hora o toda la noche en la nevera.
+4. Precalienta el horno a 450°F / 232°C. Coloca una lata grande en la rejilla inferior o usa una piedra para pizza.
+5. Estira la masa en un mesón enharinado y transfiérela a una tabla enharinada.
+6. Unta la salsa pomodoro en la masa, dejando bordes libres. Agrega los ingredientes restantes, excepto la albahaca.
+7. Hornea durante 12-15 minutos o hasta que el queso se derrita y la pizza se dore.
+8. Agrega la albahaca fresca y ¡listo!
 
-180 ml de agua
-
-1. cucharadita de sal
-
-½ cucharadita de levadura seca
-
-1. ½ cucharaditas de aceite de oliva Olivetto® sabor intenso
-
-6 cucharadas de salsa pomodoro
-
-1. taza de mozzarella de búfala
-1. tomates chontos pequeños, cortados en tajadas
-
-½ taza de aceitunas cortadas por la mitad
-
-1. cucharadas de hojas de albahaca fresca
-
-Orégano, peperoncino y pimienta para servir
-
-
-Preparación
-
-
-Mezcla la harina y la sal en un recipiente grande y aparte disuelve la levadura en el agua. Haz un hueco en el centro de la harina, vierte el agua y empieza a mezclar del centro hacia afuera uniendo todos los ingredientes. Luego, agrega el aceite y pon la masa sobre un mesón enharinado; amasa durante 10 minutos o hasta que quede lisa y elástica.
-
-Déjala reposar una hora en el recipiente tapado con un limpión o todo un día en la nevera (tapado con papel film).
-
-Precalienta el horno a 450°f. / 232°C. Coloca una lata grande en la rejilla de abajo del horno o usa una piedra para pizza (si la tienes).
-
-Dale un golpe fuerte a la masa y ponla sobre el mesón enharinado. Extiende con la ayuda de un rodillo y usando las yemas de los dedos. Si se te pega a la mesa, agrega un poco más de harina.
-
-Cuando tengas un círculo de aproximadamente 35 cm, transfiere la masa a una tabla enharinada.
-
-Unta la superficie con la salsa pomodoro pero sin llegar a los bordes. Reparte el resto de los ingredientes, menos la albahaca. Pon la pizza sobre la lata o piedra que está en el horno y hornea durante 12 a 15 minutos o hasta que el queso se haya derretido y la pizza se dore.
-
-Agrega la albahaca ¡y listo! Tienes una deliciosa pizza italiana en tu mesa.
